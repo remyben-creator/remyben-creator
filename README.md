@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **bremy@vassar.edu**
 
-- ⚡ Fun fact **I do Stand up at Vassar College**
+- ⚡ Fun fact **I do Stand up comedy at Vassar College**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
